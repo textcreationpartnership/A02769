@@ -35,9 +35,57 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The synagogue, or, The shadow of the temple Sacred poems, and private ejaculations. In imitation of 
+
+1. The Dedication.
+
 #####Body#####
-The synagogue, or, The shadow of the temple Sacred poems, and private ejaculations. In imitation of 
+
+1. Subterliminare.
+
+1. ¶ The Church-yard.
+
+1. ¶ The Church-stile.
+
+1. ¶ The Church-gate.
+
+1. ¶ The Church-wals.
+
+1. ¶ The Church.
+
+1. ¶ The Church-porch.
+
+1. ¶ Invitation.
+
+1. ¶ Comfort in extremitie.
+
+1. ¶ Resolution and assurance.
+
+1. ¶ The Nativitie.
+
+1. ¶ Vows broken and rewarded.
+
+1. ¶ Confusion.
+
+1. ¶ A Paradox.
+
+1. ¶ Inmates.
+
+1. ¶ The Curbe.
+
+1. ¶ The Losse.
+
+1. ¶ The Search.
+
+1. ¶ The Returne.
+
+1. ¶ The Circumcision.
+
+1. ¶ Inundations.
+
+1. ¶ Sinne.
+
+1. ¶ Travels at home.
+
 **Types of content**
 
   * There are 760 **verse** lines!
